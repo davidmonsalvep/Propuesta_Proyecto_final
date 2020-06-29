@@ -1,2 +1,3 @@
 # Propuesta_Proyecto_final
-Documento Adjunto 
+David Monsalve Pulgarin 
+Jose Daniel Rivera 
